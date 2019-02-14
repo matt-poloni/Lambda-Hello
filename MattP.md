@@ -14,4 +14,4 @@ Three words that describe me:
 2. Rigid
 3. Fragile
 
-My favorite type of movies are dramas with absolutely no humor mixed in. Laughter is overrated. [Small change for testing]
+My favorite type of movies are dramas with absolutely no humor mixed in. Laughter is overrated. So is any other form of joy in life (such as eating pizza).
